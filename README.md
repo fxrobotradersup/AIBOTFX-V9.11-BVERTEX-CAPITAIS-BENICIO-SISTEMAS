@@ -398,11 +398,12 @@ AIBOTFX Oficial
 CONTATO OFICIAL
 
 WhatsApp:
-+55 69 99946-0467
++55 69 992423579
 
 Email:
 fxrobotradersup@gmail.com
 
+Site: https://www.aibotfx.com
 
 ---
 
