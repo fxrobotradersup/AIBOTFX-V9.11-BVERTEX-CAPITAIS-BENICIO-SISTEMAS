@@ -405,6 +405,8 @@ fxrobotradersup@gmail.com
 
 Site: https://www.aibotfx.com
 
+Canal do YouTube Oficial: 
+https://www.youtube.com/@BVertexCapitas
 ---
 
 CONCLUSÃO
